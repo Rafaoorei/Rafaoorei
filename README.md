@@ -10,4 +10,4 @@ Meu nome e Rafão
 
 - Rafaelgregioeva@gmail.com
 
-![](https://tenor.com/pt-BR/view/vamos-porra-yuri-alberto-vamos-todo-mundo-vamos-galera-vamos-jogar-gif-5127147909932730208)
+![](https://media1.tenor.com/m/RydJ2_ptR2AAAAAd/vamos-porra-yuri-alberto.gif)
